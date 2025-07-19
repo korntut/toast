@@ -36,6 +36,8 @@ Sid: Don't mind my sister, she's in love with a mister
 Julian ...
 
 -----------
+From THE PROPHET By Kahlil Gibran
+
 You were born together, and together you shall be forevermore.
 
 You shall be together when the white wings of death scatter your days.
