@@ -54,8 +54,9 @@ Let it rather be a moving sea between the shores of your souls.
 
 Fill each other’s cup but drink not from one cup.
 
-Give one another of your bread but eat not from the same loaf. Sing and dance together and be joyous, but let each one 
-of you be alone,
+Give one another of your bread but eat not from the same loaf. 
+
+Sing and dance together and be joyous, but let each one of you be alone,
 
 Even as the strings of a lute are alone though they quiver with the same music.
 
