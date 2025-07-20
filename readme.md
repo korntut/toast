@@ -2,30 +2,31 @@
 "Voice Mail"
 "Rent"
 "You Okay Honey?"
-"One Song Glory"
-"Light My Candle"
-"Today 4 U"
-"You'll See"
-"Tango: Maureen"
 "Life Support"
-"Out Tonight"
 "Another Day"
-"Will I?"
-"On the Street"
 "Santa Fe"
-"I'll Cover You"
-"We're Okay"
+
+It wasn't always easy. At times it may have felt like you were nearly "On the Street". 
+You may have asked yourselves "Will I?" 
+But when Heather said "Take Me or Leave Me", "Light My Candle", "You'll See"! 
+Those words hit Adam like "One Song Glory". He had to go "Out Tonight" and dance a "Tango: Maureen"
+
+It was suddenly clear. These are the "Seasons of Love"
+
+
+"Today 4 U" your loved ones are here. 
+
+
+
+Heather, Adam, when you look at each other, I can hear what you're thinking.
+"We're Okay". "I'll Cover You". "Without You" I am lost. "I Should Tell You", "What You Own" is my whole heart.
+
 
 I am just "Over the Moon". It's "Christmas Bells" on "Halloween". "Happy New Year"!
 
 "La Vie Bohème" (Bohemian Life)
-"I Should Tell You"
-"Seasons of Love"
-"Take Me or Leave Me"
-"Without You"
 "Contact"
 "Goodbye Love"
-"What You Own"
 "Finale"
 "Your Eyes"
 
