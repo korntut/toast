@@ -15,16 +15,15 @@
 "Santa Fe"
 "I'll Cover You"
 "We're Okay"
-"Christmas Bells"
-"Over the Moon"
+
+I am just "Over the Moon". It's "Christmas Bells" on "Halloween". "Happy New Year"!
+
 "La Vie Bohème" (Bohemian Life)
 "I Should Tell You"
 "Seasons of Love"
-"Happy New Year"
 "Take Me or Leave Me"
 "Without You"
 "Contact"
-"Halloween"
 "Goodbye Love"
 "What You Own"
 "Finale"
