@@ -1,30 +1,25 @@
 Before you met, you were both living "La Vie Bohème".
-"Rent"
+The daily grind, pay the "Rent", didn't matter if it was Binghamton or "Santa Fe".
 
-But when Heather saw Adam getting ready to "Tune Up" his sax, and she just couldn't wait for him to leave that first "Voice Mail".
+But when Heather saw Adam getting ready to "Tune Up" his sax, she just couldn't wait for him to leave that first "Voice Mail".
 
-"Santa Fe"
-
-It wasn't always easy. At times it may have felt like you were nearly "On the Street". 
+It wasn't always easy. 
 You may have asked yourselves "Will I?" 
+At times it may have even felt like you were out "On the Street". 
 But when Heather said "Take Me or Leave Me", "Light My Candle", "You'll See"! 
-Those words hit Adam like "One Song Glory". He had to go "Out Tonight" and dance a "Tango: Maureen"
-
-It was suddenly clear. These are the "Seasons of Love"
-
-"Today 4 U" your loved ones are here. 
+Those words hit Adam like "One Song Glory". It was suddenly clear. These are the "Seasons of Love".
 
 Heather, Adam, when you look at each other, I can hear what you're thinking.
 "We're Okay". "I'll Cover You". "Without You" I am lost. "I Should Tell You", "What You Own" is my whole heart.
 "Another Day" without you would land me on "Life Support".
-I am just "Over the Moon". It's "Christmas Bells" on "Halloween". "Happy New Year"!
 
-It's the small things every day that keep your love in bloom. 
+When I look at "Your Eyes" I think I know your secret. It's the small things every day that keep your love in bloom. 
 A little eye "Contact". The quick "Goodbye Love" before work in the morning, the "You Okay Honey?" at dinner.
-When I look at "Your Eyes" I know 
 
+"Today 4 U" your loved ones are "Out Tonight" to dance a "Tango: Maureen".
+A grand "Finale" to the previous chapter, and a fresh start for the next.
 
-"Finale"
+I am just "Over the Moon". It's "Christmas Bells" on "Halloween". "Happy New Year"!
 
 -----------
 Sid: Don't mind my sister, she's in love with a mister
